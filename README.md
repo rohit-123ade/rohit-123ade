@@ -1,4 +1,4 @@
-# 👋 Hi, I'm ROHIT
+# 👋 Hi, I'm ROHIT ADE
 
 ### 💫 About Me:
 
