@@ -1,4 +1,4 @@
-# 👋 Hi, I'm R
+# 👋 Hi, I'm ROHIT
 
 ### 💫 About Me:
 
